@@ -31,7 +31,10 @@
 5
 ![Uploading Captura desde 2024-11-19 12-40-53.png…]()
 
+![Captura desde 2024-11-19 12-41-26](https://github.com/user-attachments/assets/9859065c-789b-4ff9-896f-1aa8794d78c1)
 
 
-
+7. Selecciones la nostra ciutat
+ ![Captura desde 2024-11-19 12-43-14](https://github.com/user-attachments/assets/63cf1b5b-e207-470b-94e5-1f2840aaa6f9)
+  
 
