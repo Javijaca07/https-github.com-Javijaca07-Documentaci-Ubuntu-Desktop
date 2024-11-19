@@ -29,7 +29,8 @@
 ![Captura desde 2024-11-19 12-40-01](https://github.com/user-attachments/assets/d816b01f-e9f3-4a25-a367-c312f7e0377b)
 
 5
-![Uploading Captura desde 2024-11-19 12-40-53.png…]()
+![Captura desde 2024-11-19 12-40-53](https://github.com/user-attachments/assets/1a726380-b02c-4daf-bbcd-bbf4ff5268af)
+
 
 ![Captura desde 2024-11-19 12-41-26](https://github.com/user-attachments/assets/9859065c-789b-4ff9-896f-1aa8794d78c1)
 
