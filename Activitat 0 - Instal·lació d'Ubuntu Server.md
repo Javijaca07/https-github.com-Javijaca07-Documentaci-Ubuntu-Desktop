@@ -25,7 +25,7 @@
 3
 ![Captura desde 2024-11-19 12-38-57](https://github.com/user-attachments/assets/290a008a-2b55-4e99-a596-66077ce2fedd)
 
-4. 
+4 
 ![Captura desde 2024-11-19 12-40-01](https://github.com/user-attachments/assets/d816b01f-e9f3-4a25-a367-c312f7e0377b)
 
 5
