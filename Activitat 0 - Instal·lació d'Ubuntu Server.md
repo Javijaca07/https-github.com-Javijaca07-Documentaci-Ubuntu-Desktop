@@ -1,4 +1,6 @@
-![image](https://github.com/user-attachments/assets/2ab12fc5-528d-44de-8418-85707e91c29a)Documentaci Ubuntu Desktop
+Activitat 0 - Instal·lació d'Ubuntu Server
+
+
 
 1. Instalarem la iso de ubuntu desktop 
 
